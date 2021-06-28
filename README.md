@@ -1,1 +1,1 @@
-# Great_minds_project
+# Great_Minds_Teches
